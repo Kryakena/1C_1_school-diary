@@ -23,7 +23,7 @@
 ![2025-01-23_00-00-56](https://github.com/user-attachments/assets/9ceef5bd-0a33-472f-ac9e-d265a616929a)
 
 6. Далее
-
+ 
 ![2025-01-23_00-02-01](https://github.com/user-attachments/assets/cbb8e659-946b-4a5d-9b32-ffa18590b01c)
 
 7. Готово
